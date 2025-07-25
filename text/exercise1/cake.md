@@ -26,7 +26,7 @@ Mix the flour, baking powder, and salt together in a medium bowl.
 
 Beat sugar and shortening together in a large bowl with an electric mixer until light and fluffy.
 
-Add eggs, one at a time, beating thoroughly after each adding each egg. 
+Add eggs one at a time, beating thoroughly after each.
 
 Slowly add the flour mixture and milk, beating just to combine. 
 
